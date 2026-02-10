@@ -1,1 +1,1 @@
-# WAVES-Cal-Poly-SLO
+# WAVES Cal Poly SLO
